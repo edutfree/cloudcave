@@ -14,6 +14,18 @@
 
 [![CloudCave(云洞)官网地址](cloudcave_20250425_201501.png)](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
+## CloudCave最新优惠促销码
+
+CloudCave黑五优惠来啦！！
+
+季付10%：[2390](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+
+半年15%：[2385](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+
+年25%：[2375](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+
+优惠多多，千万不要错过！
+
 ## 云洞加速简介
 
 CloudCave(云洞)是全隧道专线加速，从2018年开始已经稳定运营多年，节点持续不断更新，用户体验不错，无视任何晚高峰、会议，依然4k流畅。套餐价格实惠，性价比不错。 
