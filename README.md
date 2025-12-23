@@ -14,13 +14,13 @@
 
 ## CloudCave最新优惠促销码
 
-CloudCave黑五优惠来啦！！
+CloudCave 2025圣诞节 + 2026元旦优惠来啦！！
 
-季付10%：[2390](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+季付10%：[4490](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
-半年15%：[2385](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+半年15%：[4485](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
-年25%：[2375](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+年25%：[4475](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
 优惠多多，千万不要错过！
 
