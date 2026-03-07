@@ -4,23 +4,13 @@
 
 直连地址1：[https://yundong.pro](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
----
-
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
-
 ## CloudCave最新优惠促销码
 
-CloudCave 2025圣诞节 + 2026元旦优惠来啦！！
+CloudCave 专线上线优惠促销
 
-季付10%：[4490](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+季付10%：[2390](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
-半年15%：[4485](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
-
-年25%：[4475](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+年25%：[2375](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
 优惠多多，千万不要错过！
 
