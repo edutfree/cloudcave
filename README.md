@@ -6,11 +6,13 @@
 
 ## CloudCave最新优惠促销码
 
-CloudCave 专线上线优惠促销
+CloudCave 专线上线优惠促销，2026中秋国庆活动与续费优惠促销：
 
-季付10%：[2390](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+季付10%：[2290](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
-年25%：[2375](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+半年15%：[2285](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
+
+年25%：[2275](https://0425.cave02-o66bjll5.top/auth/register?code=m2yA)
 
 优惠多多，千万不要错过！
 
